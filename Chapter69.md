@@ -196,7 +196,7 @@ Google的园区很大，甚至连停车场都有好几个。两人跟着导航�
  
 任豪抬手帮周震南拿掉了头上落的一片白色小花瓣，跟着他一起走进了BP的门。
  
-Life goes on, time flys by. And I will be there for you.
+Life goes on, time flies by. And I will be there for you.
  
  
  
